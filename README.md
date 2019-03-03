@@ -1,1 +1,1 @@
-# Beniaz.github.io/BeniazwebPage
+# Beniaz.github.io/BeniazWebPage
